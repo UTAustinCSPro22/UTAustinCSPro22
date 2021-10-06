@@ -1,0 +1,8 @@
+- 👋 Hi, I’m @UTAustinCSPro22
+- 👀 Computer Science Pro
+- 🌱 Growth Mindset
+- 2️⃣ Level 2 Stage
+- 💰 Entrepreneur
+- 🤔 Big Thinker
+- 🔬 Self Researcher
+- ✨ UT Austin 2022
